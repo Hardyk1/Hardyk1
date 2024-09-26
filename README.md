@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hardyk1
 - 👀 I’m interested in leraning about everithing 
-- 🌱 I’m currently learning cibersecurety 
+- 🌱 I’m currently learning cibersecurity 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: Marques or Hardyk 
